@@ -9,6 +9,8 @@
 
 - 📫 How to reach me: 
           poncerod.maria@gmail.com
+          
+- Don' doubt contacting me! I'm looking forward to collaborate with you 
 
 <!---
 MerPonce/MerPonce is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
